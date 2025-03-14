@@ -1,5 +1,4 @@
-
-![tumblr_c9eba78162dd708f4dcec34c3a66eda2_110f0942_640](https://github.com/user-attachments/assets/1eeb93b8-ccf6-46fa-ba6d-3b7c79c6510f)
+![tumblr_45d88a0caa633161d8ec143caf240deb_95186f96_540](https://github.com/user-attachments/assets/b630116a-2e79-4e75-a3cf-37285ef0dfb9)
 
 <!--
 **katanadeviI/katanadeviI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
